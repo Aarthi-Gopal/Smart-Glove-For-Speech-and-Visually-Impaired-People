@@ -1,0 +1,1 @@
+# Smart-Glove-For-Speech-and-Visually-Impaired-People
